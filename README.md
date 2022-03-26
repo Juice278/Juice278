@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Juice278
+- 👀 I’m interested in HTML and PHP
+- 💼 I work on websites for people
+- 📫 How to reach me on discord Juice#2786
